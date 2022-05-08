@@ -7,6 +7,8 @@
 
 - 3/4 Cups Rice
 - Toor Dal 4 TBSP
+- Chana Dal handful
+- Urad Dal handful
 - Grated Coconut 4 TBSP
 - Curry Leaves
 - Coconut Oil
