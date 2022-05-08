@@ -15,7 +15,6 @@
 
 ### Cooking Steps
 
-```
 
 1. 4 TBSP toor dal + 4 TBSP grated coconut + Curry Leaves Handful 
 2. Submerge 1. in water
@@ -29,4 +28,3 @@
 10. Mix till no lumps.
 11. Cook for 4 whistles.
 
-```
